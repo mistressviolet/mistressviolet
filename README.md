@@ -5,3 +5,5 @@ i am based in Pontypridd, dominatrix mistress
 foot worship, CBT, chastity, caning, whipping, humiliation, counselling sessions, sounding, 
 
 Be prepared for punishment that will have you begging to come back. 
+
+message or email for enquiries and session prices. 
